@@ -1,1 +1,9 @@
-hello from article 1
+# Career
+- Work at a well-known company as a UX Researcher after graduation.
+- Gain office experience and get a promotion within one-two years of working.
+- Climb up to the position of Senior UX Researcher.
+- Become a team leader for my team.
+-  Accomplish working from the comfort of my home. 
+- Begin taking on my personal clients and guiding them.
+
+img src="https://lh3.googleusercontent.com/pw/ADCreHe18eIOmTdiA2Q1A8Ek1hlZnzGCX1ANO_Gd02h0etzCQ4UqWimTnVM0mdfmdvkr23spzT35VaR5gML3R7H31RpVUydM_NqS6OJ2VbYT0W3f2nvrhPN2OAjrwxbR93S-mHt8sXIDaD-Aao-2WbDb-tY-Vrwqt2ZPk8iHKwaxx-dLRCS7KgVxNxVPx3amIzwWWiidmNG--TB4fVi1Gx1FNGsasWBR-pbR6r605irP1n7mDMV1XFSh8TDrfyJTweaIP19NMGlum4EkHTTX1EuOkT39Ybhz0LscGJzsMElRmhlU7tiEY-_gcMJVD3qouqHDhVyfNrOeHZe2ArmRzK8xuOS7gB59umtoVqJ23wGwXq0T7fO9xPHSOJQIQwW8_IpfWyucaXmH5MXeFdYOhqnRTF8Fxup2ds6lSMcscF1vKwBxWSabUSG8dJIbO3myeuisrYOA8p30FWXvidlxrxPgJ1Bec1ErTrXaUg2oDkvdbfeD91o-CaLRgbJsAG8OKmdXKgqVrZYrhBai8BcpUeKgwXVP-PwPc63lwFCDEd0c8U2KKs0ZToTl49LUPW_vixu0ehXCG9-7DOUueoffPC8L5Ocbc1d0nVrlTWG1c__gErpEdMflX3JKiPa31hxS7dHrtfAPrlBYT-O3KfeCXd9LHaQStT4yGlFvNcaNDBaiVgxYU7v1iXCL8NIxHPvaDnDrMVNuCMIioU0J1LWNSXZ8dv4v6hRtxgBTfD2aPAOvM2ZGBtjwnUDjHuFoZIJbMjl9VK4rDMVmZRIs6D4QXJ2Czr0QN6uVZY2aPQJg3HIq2U2_DhAbg3eSb3y7Xwlv-0GIvExgud1fcD5ViDZUquMZ7BN1_sHVLhJMiS94s-zR0lBlxBYaw1Zx6HkfVoGzS9BY445sjk1hgwSPVw4UdpiWVNZ-j_NOFKe1O0iIjmDFSaJY1Fai7vIhHUpHokTWc9Q=w978-h390-s-no?authuser=0" height="150" />

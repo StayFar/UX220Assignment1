@@ -1,1 +1,8 @@
-hello from article 3
+# Family
+- Be married by the time I graduate university, to a man that respects me and my family.
+- Have at least two children before the age of thirty.
+- Live in a nice cozy house, with two cats near my parents.
+- Make sure to have at least two meals a day as a family.
+- Include both sides of our extended families for events, such as birthdays, anniversaries, graduations, etc.
+
+<img src="https://lh3.googleusercontent.com/pw/ADCreHc1aebACoGatZN1C43eLra4odP3P9Q4BEevkpCBnX3mPVQl1zhSgbCJQVVyCwFPbC1l6WKRvHRAc_z_KamI6cZ__VddDmm6LjCiTYSJ0noAkCklIYuz7fO5B2GIgMDbud0z91G_YuZ07gE1wuk8nQxBCyvlfstpBz5tI8Zwa6-QMf4Sf7Sufzuvu2utTb-c6TC1yyP8VEF4uo4aPq2DK-p-TG_UJbe5jJjlJ9U0blnPqF36wDUye1AsumJrsTeA2jtlocYAJpazery3SUJMSxDA5CUDTp161pTD58T_NgjKlMALyDcqpG_C8MDJc7tdNpR1o0UjWKe_wfq20ktv4ATDI4C8cZQmpBT3cuwSTM3ZWMksov19DqE_Q0GK2DDurTBJBg4TStDHnSy5oVWh4ebhdAkYmtLlCK9aFP2FpNYYR_SeiBHOyTLb24IJ2H66TKe9xatz_Gx_5--9xQNb9m6f0bTYP-z_Sl3xjD6XI_MzAiu26OGrxjGWmC9LVZuPzoPayt6XrB6CKv1Yh0e_i9Mc5ffBfoa_FTWV_J8SpQdPfruSPET52s9Anwe1ZP4xKM8diKm_OaAnBYNfU-nED-lbGix0WyLec2npSDdFm6kr2gbCD-Hr2yw_7UXNureYb-oBd4Sq9LWSmU4Zp47VEaMT3Ppbivt0XA1lIFmNT1tFOWgo6AROXPVIBE60rcioLRNT_XCLIdK0CCHujtrYDpwQvn0yKL1lS6du-_utLgd0h0YIkrRrHSm5x-Jm62fYJ1VVybYCfTMfFHfm21J7m60RwDlcm8WYVS-wBrnbaibEar5JryqXf1eVsUzkOQLc_qZZBt-wGzpaRu7KNdKoHfQm4Izk6UayRqX5CE1ZzHk76qk5t5J9AO5DKL0Q5u7P5P7hi2jDrQxZsmA-VdG49g_wjc5c-_HKzXUk7VH2XAQtvdIwzBMgvJ5o3Ltp3-4=w1464-h1098-s-no?authuser=0" height="350" />
