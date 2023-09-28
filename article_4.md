@@ -1,8 +1,8 @@
 # Recreational
-- Travel to a new country every year with family.
+- Travel to a new country every year with family (make it a tradition).
 - Explore Canada in all it's beauty and go hiking in the mountains.
 - Learn new languages, starting with Thai, Korean, French, and Arabic.
 - Complete the pilgrimage of Hajj (religious requirement), and get closer to God.
 - Learn how to knit, or crochet, in my free time.
 
-img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2Fworld-map--731553533210542693%2F&psig=AOvVaw3uDR93APw7aqWwegaDkFTP&ust=1695955798994000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJjKrumlzIEDFQAAAAAdAAAAABAF" height="350" />
+<img src= "https://lh3.googleusercontent.com/pw/ADCreHck4rCEwlgvy448FbvANi_gRJtAVit4F28sYkzuBW-tq0ib20aLD1kFvLXIGx2c8sj3AXwxUuTQ-f6nOA5WkoJlwKadd5j9d-YGjpOAIDub7zdRoGPzWdZcYgjFa-g6-55Jc437RrAvlR4FqhPXN7RGj955GfJZIjS0_IxOBgzUmLmjJpx9vLIuSj5YV-E9-bEA7_l5u6TmiVnllwB9D4QaG51HWiTwJiX6f0y9SBXBIv49tJpds_3CjULQH9AjvBUubQz7q4d5hkKZJcUmK5ud6tAFpmv1OzS0iraMOQl8Xk8OKQth08AQGQ3Rb0mGIiE-p8M_W_DoO3xDd-D-zf252LLwXfeHwIFsI-Bb_xlt8PX-e076bpz2lkZUkiToJp4b9Ds7_0Qj-5ii8VWNsv1KI9wyyd1yi2N8DIckbON3v0uFRjJoOqz0wNNn8-V1qpoONKBMasI3z7ip7RxJhp7NEYD5iA9IzGJVuJ8eQLh9vjxKiEmk8ISeLZA_CFCgGysgOhRT9LtPVnY7ZqFCcj5vxCIEFhJHUyfUR9dFpif2xPFiZwbzki3GqktK5A_sCqHs0abzPMl_Ui7TW0Hdbtnl_vdxXcOk7BpESlIoxYO-Kp7z8NBT9AG8l5OJY_VockDYKrJgVD3ugzhGW-R-wNhzg9CAbEsZZfLA9BMa8FPmfvAAwY1P6OdRpQz9yjV3odVM_rIEKywY2BTz8gaEv_YM8y3Z26s_-PTbn7SbO_6Yq_pgNNrATqLZBv6V9FUm_25sFH8H-bILPhcXLjdU1tVEiIJAykJKWxOYfyy3eVJ1qkscpVmL-Iz25IWYKBGXncirEN5nsTZouUpTzPUWV5gGmAaKr9gwgkI9a04cj5WZFDnQDBY3B5G0DbTXjZ4MTbrR_tAK2mJUC2gFpxJjmfl7oXaH9a0xvsQ18PIBQB_qvmlwaKt1GANcNU1VKR0=w964-h876-s-no?authuser=0" height="350" />
